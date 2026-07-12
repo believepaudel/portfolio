@@ -26,7 +26,4 @@ Contact me by:
 - Instagram: [Believe Paudel](https://www.instagram.com/believe_paudel/)
 
 
-## Resume
-
-- download: [English](https://drive.google.com/file/d/1EDQQZQvAWodAMgEdycBP7E_6UmmVlz-x/view?usp=sharing)
 
